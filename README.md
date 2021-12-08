@@ -1,2 +1,1 @@
-- 👋 ifree8.com 知识船仓·公益社区·知识共建
-- 📫 csweihe@qq.com
+- 👋 知识船仓·公益社区·知识共建
